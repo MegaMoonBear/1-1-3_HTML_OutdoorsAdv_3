@@ -1,1 +1,1 @@
-See HTML files - 3 for each Outdoor Adventure
+See HTML files for info on Outdoor Adventures
